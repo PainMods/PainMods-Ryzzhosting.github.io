@@ -1,1 +1,1 @@
-# PainMods-Ryzzhosting.github.io
+#Web Store Ryzz
